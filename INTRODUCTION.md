@@ -1,5 +1,5 @@
 # Enjolrasingaround-
--> ![](https://i.postimg.cc/NGz9s7ct/yh3c0l.gif)　`lyric　lyric　lyric　lyric`　! <-
+-> ![](https://i.postimg.cc/NGz9s7ct/yh3c0l.gif)　`we should just kiss like real people do.`　! <-
 ***
 -> `꒰⁠` ![](https://files.catbox.moe/k8i0qd.png){200:100%} `꒱⁠` <-
 ***
